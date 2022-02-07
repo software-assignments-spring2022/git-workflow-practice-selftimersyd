@@ -11,3 +11,10 @@ Wordle is 2022's first internet trend and for good reason. It's an online game t
 ## Review by jk6236(Joseph Kim)
 
 I have viewed the article and it seems to be a game of intellect and strategy, which I find fun. Because there seems to be not paywall to enjoy this competitive game I will definitely check it out when I have the time.
+
+## Comment by tstephen22 (Theo Stephens Kehoe) 
+
+The game is very fun ! It's impressive how simple it is yet how nice it is to play every day - I have seen many friends and people 
+share their scores for the day on different social media platforms. What is also nice is that there are various spin offs of the game 
+- Sweardle (swear words), Letterle (guessing single letters), Squirdle (guessing pokemon) and queerdle (guessing LGBT+ related words)!
+The game is very much a reflection of how even small, simple softwares/games can have a very positive impact on the world.  
