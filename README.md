@@ -11,3 +11,6 @@ Wordle is 2022's first internet trend and for good reason. It's an online game t
 ## Review by jk6236(Joseph Kim)
 
 I have viewed the article and it seems to be a game of intellect and strategy, which I find fun. Because there seems to be not paywall to enjoy this competitive game I will definitely check it out when I have the time.
+
+## Comment by Jeffery Wang(cw3736)
+I tried this game using that webpage and feel like it iis a good game. It involving using word to compete with another player. I think people who like to play this kind of games would always be smart and intelligent.
